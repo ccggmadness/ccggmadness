@@ -24,8 +24,6 @@
 </p>
 <p align="center"> cinna — met in a regi! always appreciated and loved
 
-<p align="center"> this was hell on earth to create, never again
-
 <p align="center">
  yeva + trixie — my amazing trio! love you two🧡
 </p>

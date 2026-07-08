@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.postimg.cc/633sptr2/gigi-gigi-murin.gif" width="100%">
+  <img src="https://i.postimg.cc/633sptr2/gigi-gigi-murin.gif" width="400">
 </p>
 
 <h1 align="center">૮ ˶ᵔ ᵕ ᵔ˶ ა Hi!! I'm Nene! 🧡</h1>

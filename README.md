@@ -10,12 +10,11 @@
   <img src="0a878e73341f30df051735664b35c99c.gif" width="900">
 </p>
 
-<p align="center"> ୨   💫⠀୧ Basic DNI criteria﹔ ︐
+<p align="center"> ୨୧ Basic DNI criteria﹔ ︐
 
-<p align="center"> ୨   💥⠀୧ Don't copy my skins without asking.﹔ ︐
+<p align="center"> ୨୧ Don't copy my skins, inspo is ok !﹔ ︐
 
-<p align="center"> ୨   💢⠀୧ Please be respectful !﹔ ︐
-
+<p align="center"> ୨୧ Please be respectful !﹔ ︐
 
 <p align="center"> this was hell on earth to create never again
 

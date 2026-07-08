@@ -16,7 +16,21 @@
 
 <p align="center"> ୨୧ Please be respectful !﹔ ︐
 
+## 🐾 friend appreciation corner
+
+<p align="center"> shuu — someone I've known for a long time! genuinely the best friend anyone could ask for
+<p align="center">
+ ray — silly conversations + good memories (PLEASE stop drooling over cc imcrine)
+</p>
+<p align="center"> cinna — met in a regi! always appreciated and loved
+
 <p align="center"> this was hell on earth to create, never again
+
+<p align="center">
+ yeva + trixie — my amazing trio! love you two🧡
+</p>
+
+<p align="center">if you're my friend and you aren't here I still love and appreciate you so much! This is just a small collection of people who I talk to a lot!
 
 <p align="center">
   <img src="gigi-gigi-murin.gif" width="300">

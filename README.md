@@ -16,7 +16,7 @@
 
 <p align="center"> ୨୧ Please be respectful !﹔ ︐
 
-<p align="center"> this was hell on earth to create never again
+<p align="center"> this was hell on earth to create, never again
 
 <p align="center">
   <img src="gigi-gigi-murin.gif" width="300">
